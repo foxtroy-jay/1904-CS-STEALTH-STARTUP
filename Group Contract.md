@@ -29,7 +29,7 @@ Workflow
 	Ask for help at any time
 
 Amend policy
-If 3 out 4 agree, we will do it.
+If 3 out 4 agree, we will do it. or anyone can call trial by combat.
 No side deals.
 
 Mike is not the boss or PM or anything.
